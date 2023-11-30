@@ -12,4 +12,5 @@ giovanna.silva.moraes@escola.pr.gov.br
 
 @gyva._
 
-![(https://media.tenor.com/_u5iy8dCldoAAAAd/mc-kevin-lc.gif
+
+https://media.tenor.com/Qwo8f7J0vMYAAAAC/victor-loud-victor-augusto.gif
